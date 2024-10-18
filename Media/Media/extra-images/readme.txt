@@ -1,1 +1,0 @@
-You may put your extra images here.
